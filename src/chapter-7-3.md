@@ -1,5 +1,3 @@
-Building a Learning Community
-====================================================================================
 
 Organizations that prioritize lifelong learning and professional development can create a culture of continuous improvement and growth. In this chapter, we will explore strategies for navigating organizational learning culture and building a learning community.
 

@@ -1,5 +1,3 @@
-Understanding Organizational Learning Culture
-====================================================================================================
 
 Navigating organizational learning culture is essential to achieving personal and professional growth within an organization. In this chapter, we will explore strategies for understanding and navigating organizational learning culture.
 

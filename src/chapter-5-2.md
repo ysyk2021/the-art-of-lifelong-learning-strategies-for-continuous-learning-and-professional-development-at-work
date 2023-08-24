@@ -1,5 +1,3 @@
-Developing Effective Study Habits
-===========================================================================
 
 To make the most of lifelong learning, it is essential to develop effective study habits and learning strategies. In this chapter, we will explore strategies for developing effective study habits and techniques that can help individuals maximize their learning potential.
 

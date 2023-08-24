@@ -1,5 +1,3 @@
-Identifying Formal and Informal Learning Opportunities
-=====================================================================================================
 
 To cultivate a culture of lifelong learning, individuals must be able to identify and take advantage of formal and informal learning opportunities. In this chapter, we will explore strategies for identifying learning opportunities in both formal and informal settings.
 

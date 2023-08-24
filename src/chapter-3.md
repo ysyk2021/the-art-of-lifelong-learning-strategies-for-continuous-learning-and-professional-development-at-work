@@ -1,5 +1,3 @@
-Chapter 3: Developing a Learning Mindset
-========================================
 
 Developing a learning mindset is essential for achieving personal and professional growth and success. In this chapter, we will explore techniques for cultivating a learning mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing resilience through learning.
 

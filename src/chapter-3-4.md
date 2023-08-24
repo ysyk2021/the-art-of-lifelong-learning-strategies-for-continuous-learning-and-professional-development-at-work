@@ -1,5 +1,3 @@
-Developing Resilience Through Learning
-================================================================================
 
 In today's fast-paced and ever-changing work environment, developing a learning mindset is essential for personal and professional growth. In this chapter, we will explore strategies for developing a learning mindset and building resilience through learning.
 

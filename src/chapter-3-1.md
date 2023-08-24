@@ -1,5 +1,3 @@
-Techniques for Cultivating a Learning Mindset
-=======================================================================================
 
 A learning mindset is essential for lifelong learning. It involves an attitude of curiosity, openness to new experiences, and a willingness to learn from mistakes. In this chapter, we will explore techniques for cultivating a learning mindset.
 

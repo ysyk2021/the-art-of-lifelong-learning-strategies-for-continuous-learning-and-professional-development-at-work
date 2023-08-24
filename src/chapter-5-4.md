@@ -1,5 +1,3 @@
-Improving Critical Thinking and Problem-Solving Skills
-================================================================================================
 
 Learning is not simply about acquiring information, but also about developing the skills necessary to analyze and apply that information. In this chapter, we will discuss effective learning strategies for improving critical thinking and problem-solving skills.
 

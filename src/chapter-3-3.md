@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-================================================================================
 
 Developing a learning mindset is essential for promoting continuous learning and professional development. In this chapter, we will explore the importance of setting realistic goals and objectives to develop a learning mindset and achieve optimal learning outcomes.
 

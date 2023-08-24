@@ -1,5 +1,3 @@
-Chapter 2: Defining Lifelong Learning
-=====================================
 
 Lifelong learning is the ongoing pursuit of knowledge, skills, and personal and professional development. In this chapter, we will provide an overview of lifelong learning, explore the science behind lifelong learning, and discuss how to assess personal learning styles.
 

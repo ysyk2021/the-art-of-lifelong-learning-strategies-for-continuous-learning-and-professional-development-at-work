@@ -1,5 +1,3 @@
-Chapter 5: Effective Learning Strategies
-========================================
 
 Effective learning strategies are essential for achieving success in lifelong learning. In this chapter, we will explore strategies for effective learning.
 

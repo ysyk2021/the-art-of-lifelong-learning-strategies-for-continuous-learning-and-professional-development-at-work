@@ -1,5 +1,3 @@
-Encouraging a Culture of Learning
-========================================================================================
 
 To maximize the benefits of lifelong learning and professional development, it is essential to have an organizational culture that supports and encourages continuous learning. In this chapter, we will explore strategies for navigating organizational learning culture and creating a culture of learning.
 

@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================================================================
 
 Measuring results and learning from experience is a crucial aspect of lifelong learning. In this chapter, we will explore strategies for measuring learning outcomes and adapting to changes in the workplace.
 

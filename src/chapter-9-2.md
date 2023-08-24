@@ -1,5 +1,3 @@
-Managing Resistance to Change
-============================================================================
 
 Change is an inevitable part of both personal and professional growth, but it can also be met with resistance. In this chapter, we will explore strategies for managing resistance to change.
 

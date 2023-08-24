@@ -1,5 +1,3 @@
-Managing Learning Overload and Burnout
-================================================================================================
 
 Learning is essential for professional development, but balancing it with work responsibilities can be challenging. In this chapter, we will discuss strategies for managing learning overload and burnout while pursuing continuous learning.
 

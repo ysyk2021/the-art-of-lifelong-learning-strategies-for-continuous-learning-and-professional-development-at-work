@@ -1,5 +1,3 @@
-Seeking Feedback and Input from Others
-=====================================================================================
 
 To be successful in lifelong learning, it is important to not only identify learning opportunities but also seek feedback and input from others. In this chapter, we will explore strategies for soliciting feedback and input to enhance the learning process.
 

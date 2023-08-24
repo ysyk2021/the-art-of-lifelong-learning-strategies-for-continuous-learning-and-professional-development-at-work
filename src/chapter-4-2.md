@@ -1,5 +1,3 @@
-Creating a Personal Learning Plan
-================================================================================
 
 To make the most of lifelong learning, it is essential to identify learning opportunities and create a plan for continuous learning. In this chapter, we will explore strategies for identifying learning opportunities and creating a personal learning plan.
 

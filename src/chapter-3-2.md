@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================
 
 Developing a learning mindset is essential for continuous learning and professional development at work. In this chapter, we will discuss the importance of utilizing positive self-talk and visualization as part of a learning mindset and provide practical tools and strategies for doing so.
 

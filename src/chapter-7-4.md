@@ -1,5 +1,3 @@
-Developing Learning Metrics
-==================================================================================
 
 Organizational culture plays a significant role in supporting or hindering lifelong learning. In this chapter, we will explore strategies for navigating organizational learning culture and developing learning metrics to evaluate the effectiveness of organizational learning.
 
