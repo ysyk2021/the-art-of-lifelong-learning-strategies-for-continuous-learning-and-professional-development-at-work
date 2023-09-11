@@ -1,5 +1,4 @@
-Chapter: Improving Critical Thinking and Problem-Solving Skills
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of critical thinking and problem-solving skills in lifelong learning and professional development. We will discuss strategies and techniques that can be employed to enhance these skills, enabling individuals to approach challenges with a thoughtful and analytical mindset.
 

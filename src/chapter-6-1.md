@@ -1,5 +1,4 @@
-Chapter: Making Time for Learning
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of making time for learning in order to pursue continuous learning and professional development at work. We will discuss strategies for prioritizing learning, overcoming barriers, and creating a conducive environment for lifelong learning.
 

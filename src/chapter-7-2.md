@@ -1,5 +1,4 @@
-Chapter: Encouraging a Culture of Learning
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering a culture of learning within organizations and how it contributes to continuous learning and professional development in the workplace. We will discuss strategies for creating an environment that values and encourages learning, promotes knowledge-sharing, and supports the growth and success of individuals and the organization as a whole.
 

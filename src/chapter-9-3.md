@@ -1,5 +1,4 @@
-Chapter: Dealing with Limited Resources
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for dealing with limited resources in the context of lifelong learning and professional development. We will discuss the challenges posed by limited resources, techniques for maximizing available resources, and ways to cultivate a resourceful mindset for continuous growth and development.
 

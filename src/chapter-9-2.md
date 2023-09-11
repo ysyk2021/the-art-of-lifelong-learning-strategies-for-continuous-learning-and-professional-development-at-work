@@ -1,5 +1,4 @@
-Chapter: Managing Resistance to Change
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for managing resistance to change in the context of lifelong learning and professional development. We will discuss the reasons behind resistance, the impact it can have on growth, and techniques to overcome resistance and foster a culture of openness and adaptability.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Resilience Through Learning
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the connection between learning and resilience, and how continuous learning can help develop resilience in the face of challenges and setbacks. We will discuss the importance of embracing a growth mindset, cultivating adaptability, and leveraging learning experiences to build resilience in various aspects of life and work.
 

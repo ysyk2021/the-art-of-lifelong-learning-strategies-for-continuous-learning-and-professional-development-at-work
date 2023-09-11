@@ -1,5 +1,4 @@
-Chapter: Overcoming Fear and Anxiety
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming fear and anxiety that may hinder lifelong learning and professional development. We will discuss the impact of fear and anxiety on the learning process, techniques for managing these emotions, and ways to cultivate a positive and growth-oriented mindset.
 

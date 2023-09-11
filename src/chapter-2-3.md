@@ -1,5 +1,4 @@
-Chapter: Assessing Your Personal Learning Style
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of personal learning styles and their influence on continuous learning and professional development at work. We will discuss different learning style models, methods for assessing your learning style, and strategies for leveraging your learning style for effective learning.
 

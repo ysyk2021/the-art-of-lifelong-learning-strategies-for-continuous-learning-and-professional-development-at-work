@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Learning Mindset
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to cultivate a learning mindset for continuous learning and professional development. We will discuss the importance of adopting a growth mindset, overcoming barriers to learning, setting goals, and embracing feedback as essential elements of a lifelong learning journey.
 

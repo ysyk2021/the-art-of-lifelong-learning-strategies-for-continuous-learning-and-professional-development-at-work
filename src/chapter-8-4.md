@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for adapting to changes in the workplace within the context of lifelong learning and professional development. We will discuss the importance of adaptability in a rapidly evolving work environment, techniques for embracing change, and ways to cultivate a mindset that thrives on continuous adaptation and growth.
 
